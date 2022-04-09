@@ -5,9 +5,10 @@ This society has a zero-tolerance policy for inappropriate behaviour.By paying t
 
   * Respecting diversity
   * Respecting all others and being considerate towards everyone
-  * Respecting the Robot Lab and the equipment being used•Respective of the property that others chose to bring it for use
+  * Respecting the Robot Lab and the equipment being used
+  * Respecting of the property that others chose to bring it for use
   * No eating or drinking in the Robot Lab
-  * Respect the right to privacy in accordance with the Data Protection Act 1998
+  * Respect the right to privacy in accordance with the [Data Protection Act 1998](https://www.legislation.gov.uk/ukpga/1998/29/contents) 
   * DO NOT plagiarise others intellectual property 
 	
 If you experience or witness any of the following behaviour, please report ittothe Welfare Officer (Alice Davis) or any of the society committee immediately.
@@ -17,5 +18,6 @@ If you experience or witness any of the following behaviour, please report ittot
   * Abuse: Verbal or Physical
   * Intolerance of a person’s religion, gender identity or sexual orientation
   * Behaving in a way that disturbs the enjoyment of the event/discussion for other people
- 
-Any other actions deemed to be intentionally hurtful, harmful, threatening, or inappropriateAs there is a zero tolerance towards any of these, if you break any of the rulesyou will beremoved from the society and you will be reported to the university.
+  * Any other actions deemed to be intentionally hurtful, harmful, threatening, or inappropriate 
+
+As there is a zero tolerance towards any of these, if you break any of the rules you will be removed from the society and you will be reported to the university.
