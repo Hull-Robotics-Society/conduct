@@ -10,11 +10,12 @@ This society has a zero-tolerance policy for inappropriate behaviour.By paying t
   * Respect the right to privacy in accordance with the Data Protection Act 1998
   * DO NOT plagiarise others intellectual property 
 	
-If you experience or witness any of the following behaviour, please report ittothe Welfare Officer (Alice Davis) or any of the society committeeimmediately.
+If you experience or witness any of the following behaviour, please report ittothe Welfare Officer (Alice Davis) or any of the society committee immediately.
   * Racism
   * Sexism
   * Sexual Harassment
   * Abuse: Verbal or Physical
   * Intolerance of a person’s religion, gender identity or sexual orientation
   * Behaving in a way that disturbs the enjoyment of the event/discussion for other people
-  * Any other actions deemed to be intentionally hurtful, harmful, threatening, or inappropriateAs there is a zero tolerance towards any of these, if you break any of the rulesyou will beremoved from the society and you will be reported to the university.
+ 
+Any other actions deemed to be intentionally hurtful, harmful, threatening, or inappropriateAs there is a zero tolerance towards any of these, if you break any of the rulesyou will beremoved from the society and you will be reported to the university.
