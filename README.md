@@ -11,7 +11,7 @@ This society has a zero-tolerance policy for inappropriate behaviour.By paying t
   * Respect the right to privacy in accordance with the [Data Protection Act 1998](https://www.legislation.gov.uk/ukpga/1998/29/contents) 
   * DO NOT plagiarise others intellectual property 
 	
-If you experience or witness any of the following behaviour, please report ittothe Welfare Officer (Alice Davis) or any of the society committee immediately.
+If you experience or witness any of the following behaviour, please report it to the Welfare Officer (Alice Davis) or any of the society committee immediately.
   * Racism
   * Sexism
   * Sexual Harassment
